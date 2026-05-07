@@ -1,4 +1,3 @@
-# thorbayrmauf
 𐔌՞ ܸ.ˬ.ܸ՞𐦯
 <div align="center">
 
