@@ -12,6 +12,6 @@
 
 ### currently
 
-- 🌱 learning c#
+- 🌱 learning c#/c++/python
 - 🎨 interested in ui/ux
-- 📚 student
+- e-com student
