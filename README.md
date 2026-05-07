@@ -1,6 +1,4 @@
 𐔌՞ ܸ.ˬ.ܸ՞𐦯
-<div align="center">
-
 # 𝒉𝒊, 𝒊’𝒎 𝒌𝒂𝒍𝒊 ✨
 
 🎧 music  
